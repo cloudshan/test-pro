@@ -1,10 +1,6 @@
-Here's a draft for your English advertisement: 
+### **🚀 Fast-Track Your Approval on Phantom!**
 
----
-
-**🚀 Fast-Track Your Approval on Phantom!**
-
-Are you struggling to get through Phantom’s review process? Worry no more! Our **expert services** are designed to help you quickly and seamlessly pass Phantom’s strict requirements.
+Are you struggling to get through Phantom’s review process? Worry no more! Our **expert services** are here to help you quickly and seamlessly pass Phantom’s strict requirements.
 
 ### **Why Choose Us?**  
 ✅ **Proven Expertise**: Trusted by numerous projects to achieve success on Phantom.  
@@ -19,17 +15,11 @@ Are you struggling to get through Phantom’s review process? Worry no more! Our
 
 🕒 **Time is money!** Don’t let delays slow you down. Get approved on Phantom faster than ever with our trusted services.  
 
-👉 **Contact us today** and take the first step toward Phantom approval success!  
+👉 **Contact us on Telegram**: [@solana_anna](https://t.me/solana_anna) and take the first step toward Phantom approval success!
 
 ---
 
-Let me know if you'd like to refine it further!
-
-以下是中文版本的广告文案：
-
----
-
-**🚀 快速通过 Phantom 审核！**
+### **🚀 快速通过 Phantom 审核！**
 
 还在为 Phantom 的审核流程感到苦恼吗？别担心！我们的**专业服务**，能够帮助您快速、无忧地通过 Phantom 的严格审核要求。
 
@@ -46,8 +36,4 @@ Let me know if you'd like to refine it further!
 
 🕒 **时间就是金钱！** 不要让审核延误阻碍您的进程。选择我们，助您快速通过 Phantom 审核！  
 
-👉 **立即联系我们**，迈向成功的第一步！  
-
---- 
-
-如果需要进一步调整内容，可以随时告诉我！
+👉 **联系我们 Telegram**: [@solana_anna](https://t.me/solana_anna)，立即迈向成功的第一步！
